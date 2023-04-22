@@ -1,3 +1,9 @@
-## Hallo allemaal, welkom bij mijn super epische GITHUB account!!!
+## Welkom op mijn Github account!!!
 
-Op mijn profiel staan allemaal projecten die ik helemaal zelf heb gemaakt en alle code is 100% van mij en heb ik allemaal zelf geschreven. #BigKnackgang
+Staat nog niet zo veel want heb nog niks gedaan.
+
+
+
+
+
+#BigKnackgang
